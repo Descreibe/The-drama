@@ -5,6 +5,6 @@ SO, theres this guy who we will call "Moon rises" and MANY people are intrusting
 results: someone called me a dry typer for calling them dude, and also gave me the L. this is what it feels like to be framed huh?
 I REALLY WANNA REPORT MOON RISES. But, i dont have solid proof because my dumb ahh forgot to copy any messages or screenshot anything. if yall could report him for me that would be greatful! :D
 PLEASE DO NOT attack anyone mentioned here.
-and do not think this is supposeed to be a sorry essay cuh
-now im scared to use my gwi ma cosplay from kpop demon hunters
+and do not think this is supposeed to be a sorry essay cuh!!!
+now im scared to use my gwi ma cosplay from kpop demon hunters..
 Also, im new to github so if i made any mistakes i dunno about it 
